@@ -24,4 +24,5 @@ Murilo Rodrigues Marsoli RA: 12524131430
 
 Hadassa dos Santos Pena  RA: 12523167577
 
-Luana Aparecida Pacheco Domingues de Oliveira.
+Luana Aparecida Pacheco Domingues de Oliveira RA: 12522223935
+
